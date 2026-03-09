@@ -1,4 +1,4 @@
-### `If you look into the abyss for a long time, the abyss begins to look at you`
+### `If you gaze long into an abyss, the abyss also gazes into you`
 
 #### So, who are we?
 
